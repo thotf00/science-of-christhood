@@ -3,6 +3,7 @@
 - Altered Traits - Daniel Goleman (pioneer of Emotional Intelligence).
   - An important finding of the largest literature review on meditation is after 10,000 hours you become christ like
   - No suprise, 500 years earlier Gautama the Buddah describing side-effects of meditation sounds quite similar to many qualities attributed to Jesus
+  - single-pointed awarness, without clinging to pleasant sensation, nor aversion to unpleasant sensation, brings online sovereignty over material nature
 - Marshall Rosenberg's Nonviolent Communication provides a philosophy and practice which support our ability to relate with ourselves and others in a christ-like fashion
 - Moral reasoning is a biological function before conscious awareness. Responsibility towards ones mitochondrial function and productivity is required for moral capacities automated function. Works way better than telling sick folk they should cough less, I suppose.
 **appropriate clusters of universal needs met, see max-neef via rosenbergs Nonviolent communication, versus enviroment capacities and creative pursuit, we can do well without one, having balance w others**
